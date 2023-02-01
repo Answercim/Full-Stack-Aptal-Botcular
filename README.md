@@ -1,6 +1,6 @@
 # Full-Stack-Aptal-Botcular
 
-Uzatmaya Gerek Yok Sanalda Botcuyum diyen Botcukları atıcam buraya
+Uzatmaya Gerek Yok Sanalda Botcuyum diyen Botcukları atıcam buraya bana ulaşmak isteyen Answer#0001 dmden boş yapmalarınızı bekliyorum
 
 Clydev Full Aptal Botcular Ozi Botu Editleyip para alan türemeler yaşları max 16 15
 
