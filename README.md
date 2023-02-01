@@ -20,4 +20,7 @@ elimde çok fazla ss var buldukca atacağım
 
 Dur daha Bitmedi Ravgarcım Seni Unutmadık Sen Beni Tanımazsın ben seni tanırım owsla botu kullanmak nasıl bir hiss
 
-![image]()
+![image](https://cdn.discordapp.com/attachments/1040517521775792178/1070314699264102410/ravgarifsa3.png)
+bu ss owsla botun setup komutunun ssidir örnek olsun diye koydum
+![image](https://cdn.discordapp.com/attachments/1040517521775792178/1070314699071160430/ravgarifsa2.png)
+![image](https://cdn.discordapp.com/attachments/1040517521775792178/1070314699452850256/ravgarifsa1.png)
